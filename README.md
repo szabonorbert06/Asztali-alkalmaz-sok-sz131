@@ -1,0 +1,1 @@
+# Asztali-alkalmaz-sok-sz131
